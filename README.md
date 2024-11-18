@@ -1,0 +1,2 @@
+# Competitor.
+https://vincheck.info
